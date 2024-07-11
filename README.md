@@ -1,4 +1,7 @@
-![image](https://github.com/user-attachments/assets/bc3999d0-8fa2-42e3-af67-acfd2e846922)
+![image](https://github.com/user-attachments/assets/1dfb1782-08ed-486a-ad42-3b91f6e48b91)
+
+
+[arlebina dni unless gf or close friend]
 
 
 
